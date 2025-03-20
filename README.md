@@ -5,6 +5,6 @@
 
 🔗 Let's Connect!<br>
 📩 Email: jibrinx@yahoo.com <br>
-🌐 Website: jbrnjfr.github.io <br>
+🌐 Website: https://jbrnjfr.github.io <br>
 🐦 Twitter: [https://x.com/jbrnjfr] <br>
-💼 LinkedIn: [htps://linkedin.com/in/jbrnjfr]
+💼 LinkedIn: [https://linkedin.com/in/jbrnjfr]
